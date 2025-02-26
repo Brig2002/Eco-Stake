@@ -1,4 +1,4 @@
-# Eco Stake Donor Acquisition Strategy 2025
+# Green Stake Donor Acquisition Strategy 2025
 
 ## 1. Value Proposition for Donors
 
